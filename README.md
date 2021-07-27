@@ -1,2 +1,2 @@
-# datahub
-Datahub
+# Quantum Consciousness (mindverse.io)
+
